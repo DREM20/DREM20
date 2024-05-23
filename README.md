@@ -13,4 +13,5 @@
 ## Contacto
 
 ¡Estoy abierto a nuevas oportunidades y colaboraciones! No dudes en contactarme a través de diegoromero.medina12@gmail.com.
+
 ¡Gracias por visitar mi perfil!
